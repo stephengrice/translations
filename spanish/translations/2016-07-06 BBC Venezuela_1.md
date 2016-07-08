@@ -56,3 +56,16 @@ His 19-year-old son says that only a short time ago, an acquaintance of his way 
 Others have jets for trips out of the country and small planes to celebrate a birthday with a day in the Los Roques archipelago.
 
 There is a Venezuela that still lives this way.
+
+A Venezuela where the fashionable restaurants are still filling up, where in the stores with imported products, there is a line to pay. Where, midday on a Tuesday, a woman buys some luxurious Swarovski earrings in a mall.
+
+A Venezuela where the birthdays are celebrated with 18-year-old whisky, where the musicians J Balvin and Farruko are booked for a 15-year-old girl's birthday party `(quinceaños)` and where a woman celebrates with friends with a private concert by Luis Miguel.
+
+A Special Class
+---------------
+
+They can be big businessmen, directors of companies, successful professionals and "boliburgueses," people close to Chavism that made their riches with the help of the government.
+
+One who has access to dollars in Venezuela still lives comfortably, unlike many who can barely survive.
+
+It is estimated that this powerful class could represent 16% of the population, a little less than 5 million people.
