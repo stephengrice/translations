@@ -69,3 +69,24 @@ They can be big businessmen, directors of companies, successful professionals an
 One who has access to dollars in Venezuela still lives comfortably, unlike many who can barely survive.
 
 It is estimated that this powerful class could represent 16% of the population, a little less than 5 million people.
+
+They are divided into an A/B segment, which happened to be 3.1% in 1999 and 1.3% this year, and a C group, that was 18.2% when Huga Chavez rose to power and is now 14.8%.
+
+It is a group of the population that, historically, has been accustomed to an elevated standard of life in an oil-producing nation.
+
+"Since the 80s, no one saves in bolívares, Venezuela has been undervalued, we were earning tons of of dollars and now you have relevant savings in foreign currencies, much more than any other upper middle class in Latin America," explains Luis Vicente León, economist and director of the polling company Datanálisis.
+
+Even though they maintain his standard of living, he points out that "they are losing the ability to buy and making their life significantly more expensive. Savings and income are being reduced, their cash flow stopped and they are living off what they made, not what they are making."
+
+The Known History
+-----------------
+
+The other face of the country, the most well-known, is the face of those who need to go to five different stores or supermarkets to finish their shopping.
+
+The face of the people who wait in line after line. In these lines wait the people who cannot - or do not want - to resort to the black market and to the "bachaqueros" that acquire products at regulated prices and resell them at a much higher price in the parallel market.
+
+Amid the shortage of food that is sweeping Venezuela, there is still food. The majority of 40 basic products whose prices have been regulated by the government for 13 years are the hardest to find.
+
+The rest can be obtained.
+
+Entering a supermarket is not a problem, unless you need to buy one of the products within.
