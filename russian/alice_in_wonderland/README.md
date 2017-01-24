@@ -1,0 +1,1 @@
+Translation notes: Hard signs omitted. Strange old symbol (a mix of т and ь) simply denoted in original.md as "е", as it seems to serve the same purpose as that letter.

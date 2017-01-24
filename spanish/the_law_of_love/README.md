@@ -1,0 +1,1 @@
+Translation notes: Poems, songs, etc. not by Esquivel omitted
