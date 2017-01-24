@@ -1,4 +1,4 @@
-This repository is for openly documenting *some* of the practice I do with non-English langauges. It includes translations, notes, and other easily recorded materials.
+This repository is for openly documenting some of the practice I do with non-English langauges. It includes translations, notes, and other easily recorded materials.
 Also note that while I may make notes regarding the languages, my goal here is to practice rather than to study. For this reason, I cannot guarantee perfection in any of the work produced here.
 
 Translations
