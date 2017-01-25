@@ -24,6 +24,8 @@ Yes, this is a translation of a translation.
 
 ### Скупые Годы / The Mean Years
 
+![Progress](http://progressed.io/bar/8?scale=223&title=Pages&suffix=p)
+
 [Original](the_mean_years/original.md)
 
 [My Translation](the_mean_years/translation.md)
