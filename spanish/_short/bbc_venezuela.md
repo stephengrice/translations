@@ -1,7 +1,6 @@
 [Original Article](http://www.bbc.com/mundo/noticias-america-latina-36680377)
 
-The other face of the crisis: How the high class live in Venezuela
-==================================================================
+# The other face of the crisis: How the high class live in Venezuela
 
 Juan Paullier
 
@@ -35,8 +34,8 @@ This friend, who worked for years on the stock exchange and who now enjoys art c
 
 He is just one of several people of distinct strata who believe that the worse the situation gets, the better: that "everything has to stop exploding so that the long road to reconstruction can begin."
 
-Without Barriers
-----------------
+## Without Barriers
+
 `(sin colas - en esas colas; refer to lower class of people?)`
 
 The businessman is one of them. He lives comfortably, yet remains aware of the reality of the country. He says that the situation is untenable.
@@ -61,8 +60,7 @@ A Venezuela where the fashionable restaurants are still filling up, where in the
 
 A Venezuela where the birthdays are celebrated with 18-year-old whisky, where the musicians J Balvin and Farruko are booked for a 15-year-old girl's birthday party `(quinceaños)` and where a woman celebrates with friends with a private concert by Luis Miguel.
 
-A Special Class
----------------
+## A Special Class
 
 They can be big businessmen, directors of companies, successful professionals and "boliburgueses," people close to Chavism that made their riches with the help of the government.
 
@@ -78,8 +76,7 @@ It is a group of the population that, historically, has been accustomed to an el
 
 Even though they maintain his standard of living, he points out that "they are losing the ability to buy and making their life significantly more expensive. Savings and income are being reduced, their cash flow stopped and they are living off what they made, not what they are making."
 
-The Known History
------------------
+## The Known History
 
 The other face of the country, the most well-known, is the face of those who need to go to five different stores or supermarkets to finish their shopping.
 

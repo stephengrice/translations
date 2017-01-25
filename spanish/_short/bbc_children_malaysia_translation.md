@@ -9,13 +9,13 @@ A group of boys is thrown upon the ground of a bamboo hut, drawing with crayons 
 
 In this beginning, a few girls, ages 9 and 10, seem shy, but later they begin to tell me about one of the professors of the school that they used to attend.
 
-“They punished us even when we didn’t do anything bad,” says one of them. “They made us stop under the sun for a long time, on our knees and with our desks on our heads, like this.”
+"They punished us even when we didn’t do anything bad," says one of them. "They made us stop under the sun for a long time, on our knees and with our desks on our heads, like this."
 
 When she showed the position, the others laughed. But one girl remained silent, concentrating on her drawing.
 
 It is 10-year-old Norieen Yaakob. In the summer, she and six classmates could no longer endure the harsh discipline of school and escaped to the jungle.
 
-These children were of the Orang Asli ethnicity, that in Malay means “original people” and are the oldest known inhabitants of the Malaysian peninsula.
+These children were of the Orang Asli ethnicity, that in Malay means "original people" and are the oldest known inhabitants of the Malaysian peninsula.
 
 There are 18 distinct Orang Asli tribes and the people Norieen’s village, Kampung Penad, in northern Malaysia, close to the border with Thailand, belong to the Temiar tribe.
 
@@ -35,11 +35,11 @@ To sate their hunger, they chewed leaves, as the only fruit that they found was 
 
 Norieen’s brother, Haikal, fell in a river when he was trying to drink water. The other children were too weak to help him.
 
-“The current simply carried him away,” says her mother, Midah Angah. “It’s most probable that he drowned quickly.”
+"The current simply carried him away," says her mother, Midah Angah. "It’s most probable that he drowned quickly."
 
 Juvina, a seven year old girl, broke a leg and could not walk any further. One afternoon, she needed food and the following morning Norieen awoke and found her dead at her side. Norieen carried the body off to the side and covered it with leaves.
 
-“She saw what happens to a cadaver,” says Midah. “Flies in the eyes and mouth, hair falling out, and worms dragging themselves over the body. I saw many terrible things.”
+"She saw what happens to a cadaver," says Midah. "Flies in the eyes and mouth, hair falling out, and worms dragging themselves over the body. I saw many terrible things."
 
 Ika, a seven nine year old girl, died after being impaled by a bamboo when falling from the steep shore of a river.
 
@@ -51,9 +51,9 @@ To one side of the muddy walk from the school to the village, along the Sungai P
 
 There, the seventh of October, 45 days after the children disappeared, a truck driver stopped to make a call.
 
-“I was walking over there when I saw something white rising and falling in the water,” recounts Siti Kasim, a lawyer from Kuala Lumpur.
+"I was walking over there when I saw something white rising and falling in the water," recounts Siti Kasim, a lawyer from Kuala Lumpur.
 
-“I could see two legs. At first, I thought that it was a doll, but then I looked closer and saw that it was a girl’s body.”
+"I could see two legs. At first, I thought that it was a doll, but then I looked closer and saw that it was a girl’s body."
 
 Two days later, Norieen and Miksudiar were found sheltering between the roots of a great tree, skinny and quite near death.
 
@@ -75,27 +75,27 @@ The police arrived at the village late in the night to search several houses, be
 
 Afterward, on September 2, 11 days after the children’s disappearance, their families received a letter saying that the students would be expelled unless they returned to the classes immediately.
 
-Norieen’s mother, Midah, says that the police and the officials from Jakoa, the government agency for the Orang Asli, “treated the families like criminals.”
+Norieen’s mother, Midah, says that the police and the officials from Jakoa, the government agency for the Orang Asli, "treated the families like criminals."
 
 When the search and rescue operation started, they told Ika’s father and the other villagers that they could not participate.
 
-“They sent soldiers that were used to chasing enemies and traffickers,” says Colin Nicholas, from the Center of Affairs of the Orang Asli.
+"They sent soldiers that were used to chasing enemies and traffickers," says Colin Nicholas, from the Center of Affairs of the Orang Asli.
 
-“One must put themselves in the mind of a child. If a child sees that some men, armed and in military uniforms, are looking for him, is he going to yell, ‘here I am’? Of course not! Those children were obviously escaping.”
+"One must put themselves in the mind of a child. If a child sees that some men, armed and in military uniforms, are looking for him, is he going to yell, ‘here I am’? Of course not! Those children were obviously escaping."
 
 Eventually the Orang Asli police unit arrived to help. And it was they who found the children.
 
 Some are horrified that the authorities have taken so much time to react in face of the disappearance of the children and to find them.
 
-“Are the lives of the Orang Asli less important than those of the Malaysian, Chinese, or Indian children?” wonders Lim Kit Siang, leader of the opposition party Democratic Action.
+"Are the lives of the Orang Asli less important than those of the Malaysian, Chinese, or Indian children?" wonders Lim Kit Siang, leader of the opposition party Democratic Action.
 
-“We should feel badly about the insensibility, inhumanity, negligence and incompetence that can be seen currently in Malaysia.”
+"We should feel badly about the insensibility, inhumanity, negligence and incompetence that can be seen currently in Malaysia."
 
 ## Trying to understand
 
 Laywer Siti Kasim is trying to get a clear image of the facts from the children, to prepare a possible legal action against the institution and the government.
 
-“Don’t be afraid, tell me the truth,” he tells them. “Who went to swim in the river and who was beaten?”
+"Don’t be afraid, tell me the truth," he tells them. "Who went to swim in the river and who was beaten?"
 
 The children are shy and it’s not easy to get information from them. Norieen herself, even though she has recovered physically, still is deeply affected, and wakes up crying at night, says her mother.
 
@@ -103,7 +103,7 @@ Miksudiar, the other survivor, is still in a hospital.
 
 When I visited the school in Pos Tohoi, the professors seemed reluctant to talk and asked me not to mention their names. When I asked them about their beatings, one of them laughed nervously.
 
-“No, no, it is completely false,” he said. “They are only rumors,” added another.
+"No, no, it is completely false," he said. "They are only rumors," added another.
 
 In Kuala Lumpur, the Deputy Minister of Education, P. Kamalanathan, says that the government is doing all it can for the Orang Asli.
 
@@ -113,9 +113,9 @@ When asked about a new school for the villagers, who do not want to send their c
 
 He adds that the case on the primary school of Pos Tohoi is under investigation and insists that physical punishment is not permitted in Malaysian schools.
 
-“If there is something of that nature, all the people need to do is come and make a complaint. We take our action seriously,” he says.
+"If there is something of that nature, all the people need to do is come and make a complaint. We take our action seriously," he says.
 
-Siti Kasim, the lawyer, says that the Deputy Minister is living in “a cloud” if he is not aware that there have been many complaints of the Orang Asli about the schools to which their children travel to the interior of the country.
+Siti Kasim, the lawyer, says that the Deputy Minister is living in "a cloud" if he is not aware that there have been many complaints of the Orang Asli about the schools to which their children travel to the interior of the country.
 
 ## Assimilated
 
@@ -125,12 +125,12 @@ The chief of police in Kelantan, Datuk Mazlan Lazim, confirmed the case and said
 
 In another incident, says the lawyer, four girls were salpped by a professor because they refused to recite a Muslim prayer.
 
-“These girls are not Muslim, so why force them to say a prayer before they eat?” she says. “There are many police reports and letters of complaint, but nothing is happening.”
+"These girls are not Muslim, so why force them to say a prayer before they eat?" she says. "There are many police reports and letters of complaint, but nothing is happening."
 
 The government says that it is looking to insert the Orang Asli into Malaysian society.
 
 But Colin Nichols believes that the government has little interest in protecting their identity and that the natives are being each time more absorbed by a centralized Malaysian state.
 
-“Children of seven, eight years are being pulled out of their village,” he says.
+"Children of seven, eight years are being pulled out of their village," he says.
 
-“Then they put them in a school hostel for three months, without seeing their parents, they give them a new educations, a new culture, a new language, and sometimes a new religion, and in a generation you have people who are no longer Orang Asli,” he complains.
+"Then they put them in a school hostel for three months, without seeing their parents, they give them a new educations, a new culture, a new language, and sometimes a new religion, and in a generation you have people who are no longer Orang Asli," he complains.

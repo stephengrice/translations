@@ -1,4 +1,4 @@
-Task 9. Listen and read. This is an “Alternative Anthem” written by Oleg Belov aka Otto Weisskopf.
+Task 9. Listen and read. This is an "Alternative Anthem" written by Oleg Belov aka Otto Weisskopf.
 (from learnrussian.rt.com)
 
 Emphasis indicates phrases that were particularly difficult or that need review.
@@ -56,7 +56,7 @@ They love going fast, but the roads **nobody to build.**
 
 They opened the Cosmos and Antarctica, but there it is impossible to live!
 
-Those strange Russians can tell you: “Well, no.”
+Those strange Russians can tell you: "Well, no."
 
 Those strange Russians are poor in the richest country.
 

@@ -1,6 +1,8 @@
-# Articles and other short translations in Arabic
+# Arabic Translations
 
-## BBC Fallujah Bombing
+## Articles and other short translations
+
+### BBC Fallujah Bombing
 [Original](bbc_fallujah_bombing_original.md)
 
 [My Translation](bbc_fallujah_bombing_translation.md)
