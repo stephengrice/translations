@@ -6,6 +6,8 @@
 
 Yes, this is a translation of a translation.
 
+![Progress](http://progressed.io/bar/6?scale=114&title=Pages&suffix=p)
+
 [Original](alice_in_wonderland/original.md)
 
 [My Translation](alice_in_wonderland/translation.md)
