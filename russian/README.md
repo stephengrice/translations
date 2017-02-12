@@ -41,3 +41,5 @@ Yes, this is a translation of a translation.
 * [Alternative Anthem Poem](_short/alternative_anthem_poem.md)
 
 * [EasyRussian Russian Horror Stories](_short/easyrussian_russian_horror_stories.md)
+
+* BBC Cybersecurity Article: [Original](_short/2017-02-12_bbc_cyber_original.md) / [Translation](_short/2017-02-12_bbc_cyber_translation.md)
