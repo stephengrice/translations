@@ -20,3 +20,10 @@ Martin calls all of these target categories "easy." Sometimes hackers choose eve
 
 ## "Worthy Opponents"
 
+In the Sunday Times, Ciaran Martin expressed confidence in that at least a part of these cyberattacks were coordinated from the Kremlin, which accordingly hopes to "strengthen our influence in the West."
+
+"In the past two years, the agression of Russia in the cyberspace has qualitatively changed," he says. "In the midst of these changes we have seen a series of attacks on political bodies of power, parties, Parliamentary organizations - all of these widely known, including our foreign partners."
+
+Lately, representatives of many western special services and administrations expressed concern due to cyberattacks which, as they believe, the Kremlin is launching with the goal of affecting political situations in other countries.
+
+After the scandal with the theft of computers belonging to Hillary Clinton's election staff and the national council of the U.S. democratic party
