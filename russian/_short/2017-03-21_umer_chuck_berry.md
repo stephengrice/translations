@@ -1,0 +1,11 @@
+Статья: https://m.gazeta.ru/culture/photo/umer_chak_berri.shtml
+
+# Умер Чак Берри
+
+Оригинальная:
+
+В возрасте 90 лет скончался один из основоположников рок-н-ролла, гитарист Чарльз Эдвард Андерсон Берри, более известный как просто Чак Берри. Музыкант родился в Сент-Луисе, штат Миссури. Музыкой, как это бывает с черными подростками, увлекся с детства и в 14 лет дал первый концерт. Через пару лет Чак впервые оказался в центре судебного разбирательства по делу об ограблениях нескольких магазинов, которые провернул со своими друзьями. Популярность настигла Берри в середине 1950-х, когда музыкант окончательно сформировал свой стиль на основе скрещивания ритм-н-блюза и кантри. Именно тогда появились его легендарные «Johnny B. Goode», «Rock'n'Roll Music» и другие песни, перевернувшие сознание начинающих музыкантов по обе стороны океана — от The Beatles до Led Zeppelin. Свой последний студийный альбом Чак записал в 1979 году, после чего переключился на концертную деятельность. В рамках нескольких прощальных туров Берри с успехом выступал и в Москве. В октябре 2016 года сообщалось о планах музыканта выпустить новый альбом.
+
+На английском:
+
+At the age of 90, one of the founders of rock-n-roll passed away, guitarist Charles Edward Anderson, better known as Chuck Berry. The musician was born in Saint Louis, Missouri. Like many black teenagers, he was swept away by music, giving his first concert at age 14. After a few years, Chuck was found in the center of judicial proceedings in regard to robberies of several stores, which he did with the help of several friends. Popularity overtook Berry in the mid 1950s, when the musician finally formed his well-known style, drawing from rhythm-and-blues and country. Just then, his legendary tunes "Johnny B. Goode," "Rock'n'Roll Music," and other songs put him on the map, sparking the minds of new musicians on both sides of the ocean - from the Beatles to Led Zeppelin. Chuck recorded his last studio album in 1979, after which he switched to live performances. During the course of several farewell tours Berry successfully performed in Moscow. In October 2016, there were reports of the musician's plans to release a new album.

@@ -45,3 +45,5 @@ Yes, this is a translation of a translation.
 * [EasyRussian Russian Horror Stories](_short/easyrussian_russian_horror_stories.md)
 
 * BBC Cybersecurity Article: [Original](_short/2017-02-12_bbc_cyber_original.md) / [Translation](_short/2017-02-12_bbc_cyber_translation.md)
+
+* [Chuck Berry Gazeta.ru Death Story](_short/2017-03-21_umer_chuck_berry.md)
