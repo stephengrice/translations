@@ -90,3 +90,8 @@ My father teased Egor for that, and Egor laughed and said:
 
 I became embarrassed, grabbed my hat and let myself outside. I didn’t like when Egor reminded me of Lyuska. She is quite a good friend to me. Even my best friend Vitka so stealthily used to write on fences with chalk: Lucie+Vova=groom and bride. And what kind of groom was I! Lyuska was older than me by two years. Her face was round, white, and with small eyebrows – barely noticeable. Her hair also was white, and she braided it in two small pigtails, at the ends of which there was always fancy cloth fluttering.
 
+Lyuska never played with the girls, and she spent a large part of her time around us, the boys, for which they nicknamed her "Bachelorette."
+
+She, like us, loved to go horseback riding and even to gallop. With us, Lyuska spent entire nights in the stable yard, waiting for when it would be possible to jump onto any foal and gallop far, far beyond the village in the night. Conversely, we came back late at night and often near the chapel under the birches we would sit down to rest. And so many stories and all kinds of fables were told here - by the thousand!
+
+The storyteller always tried to speak with a quiet voice, almost in a whisper, purposely stretching the words, to create tension and silence. And God forbid, if in the chapel, coming off, a rotten board bangs in the floor. Everyone trembled, turned their heads, and froze. And each skywardly remembered the stories about the distant past of the chapel. About how in that same place unexpectedly and without warning appeared a gilded icon. And how much it [nor?] carried away to the home of pious old men, the icon still appeared here. Around the village 
