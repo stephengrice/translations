@@ -31,4 +31,12 @@ When they approached the land, the Arawak Indians welcomed them by swimming to t
 
 This act would carry dramatic consequences: Columbus captured several of them and made them climb aboard, insisting that they take him to the source of the gold. He later navigated to what we now call the island of Cuba, and afterward to Hispaniola (the island that is today composed of Haiti and the Dominican Republic). There, the sparkle of gold was visible in the rivers, and the golden mask that a native chief offered Columbus provoked delirious visiones of endless gold.
 
-On Hispaniola, Columbus built a fort with wood from the __Santa Maria__, which he had run aground. It was the first European military base in the Western hemisphere. He called it __Navidad__, and there he left thirty-nine members of his crew with instructions to find and store gold.
+On Hispaniola, Columbus built a fort with wood from the __Santa Maria__, which he had run aground. It was the first European military base in the Western hemisphere. He called it __Navidad__, and there he left thirty-nine members of his crew with instructions to find and store gold. He captured more natives and sent them on the two ships they still had. On a part of the island he got mixed up in a fight with several natives that refused to provide the amount of bows and arrows that the men wanted. Two were stabbed with swords and bled to death. Then the __Niña__ and the __Pinta__ boarded for the Azores and Spain. When the weather cooled, some of the native prisoners died.
+
+Columbus's report to the Court of Madrid was extravagant. It insisted on the fact that they had arrived in Asia (referring to Cuba) and an island of coastal China (Hispaniola). His descriptions were part fact, part fiction:
+
+```
+Hispaniola is a miracle. Mountains and hills, plains and pastures, they are as fertile as they are beautiful... The natural harbors are incredibly good and there are many wide rivers, the majority of which contain gold... There are many spices, and nine large mines for gold and other metals...
+```
+
+The natives, according to Columbus's report: "They are so naive and generous with their possessions that no one who hasn't see them would believe it. When you ask for soemthing that they have, they never 
