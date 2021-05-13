@@ -36,4 +36,18 @@ The smallest country in the region stood out by taking drastic measures from the
 
 In fact, on March 11, it became the first Latin American country **to prohibit the entry of foreign persons to its territory.**
 
-Salvadorans and foreign residents had to undergo 
+Salvadorans and foreign residents had to submit to a 30-day quarantine in hostels designated for that purpose, which in the first days were especially criticized by those who used them for the poor hygenic conditions that they provided.
+
+But in spite of its efforts to shield the country, **the coronavirus ended up entering El Salvador a week later.** Since this Thursday, there have been 83 confirmed cases and six deaths.
+
+The government presented an ambitious and well-received economic support plan that aims to, over three months, suspend lighting, water, telephone, and internet payments, and also defer rent payments. It also announced a payment of US$300 for hundreds of thousands of people that would be without income during the obligatory home quarantine.
+
+Days later, thousands of people put themselves at risk of infection by crowding into government facilities and banks to request and collect their bond.
+
+## Nicaragua: the country with the fewest measures
+
+In contrast to the strategy employed in El Salvador, Nicaragua stands out for being, by far, the Latin American coutnry with the least measures taken to deal with the coronavirus.
+
+There are no restrictions for foreigners entering its airports, the borders are not closed, there are no quarantines or mandatory curfews, the schools were not closed **-even though many parents refuse to send their children to class-**, nor were events such as soccer games cancelled, though they were played without an audience.
+
+In fact, the government contradicted the sanitary recommendation to avoid crowds, assembling a march called "Love in times of COVID-19" or sending hundreds of Ministry of Health officials to make door-to-door visits to inform the public about the virus.
