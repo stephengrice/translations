@@ -26,4 +26,26 @@ In the Sunday Times, Ciaran Martin expressed confidence in that at least a part 
 
 Lately, representatives of many western special services and administrations expressed concern due to cyberattacks which, as they believe, the Kremlin is launching with the goal of affecting political situations in other countries.
 
-After the scandal with the theft of computers belonging to Hillary Clinton's election staff and the national council of the U.S. democratic party
+After the scandal with the theft of computers belonging to Hillary Clinton's election staff and the national council of the U.S. democratic party, several German politicians stated that they are afraid of hacking attempts - including Russian ones - that could disrupt the German general elections in the fall of 2017.
+
+Last year, websites belonging to the German councilor Angela Merkel and the Bundestag were attacked by hackers. Responsibility for that attack was claimed by a group of hackers whom call themselves "CyberBerkut."
+
+According to Martin, the Chinese intelligence service also organized several similar attacks.
+
+Russian authorities consistently deny accusations of involvement in any cyber attacks.
+
+"We have worthy rivals, but we manage well in deflecting attacks like this. However, everything is occuring at a very a complex level, which compels us to always be on the alert, and I personally think that a Category 1 incident could occur soon," Ciaran Martin summarizes.
+
+## "Category 1 Incident"
+
+A Cateogry 1 Incident, explains Martin, is of a scale comparable to the theft of servers belonging to the United States Human Resources Office in 2015.
+
+When it occurred, the records of around 21.5 million people, including personnel and people who passed background checks, were leaked as a result of the hack.
+
+"Many of our allies, in countries similar to our own, have been victims of cyberattacks that I would call Category 1 Incidents, and so somewhere there is a clear goal to carry out these attacks," says Martin.
+
+"We cannot eliminate the threat, but defeatism drives me crazy. We shouldn't be defeatists: we can do much more in order to defend ourselves," the head of the UK's National Cybersecurity Center said in an interview with the Sunday Times.
+
+**Photo:**
+
+Ciaran Martin laments that Western special servies exhibit "defeatism" in the fight with the Russian cyber threat.
